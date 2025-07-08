@@ -1,1 +1,1 @@
-Naa sa settings ang form
+Ask lang ko if naay mali o kulang
